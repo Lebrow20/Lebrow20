@@ -1,6 +1,6 @@
 # Hello, I'm RABEMANANTSOA Fanilo Ny Avo👋
 
-- 🎓 I'm currently studying at "Ecole National d'Informatique (ENI) Madagascar Fianarantsoa".
+- 🎓 I'm currently studying at "Ecole Nationale d'Informatique (ENI) Madagascar Fianarantsoa".
 - 🏀 I enjoy playing basketball in my free time.
 - ♟️ I'm also a fan of chess, always up for a good game.
 - 🎮 Video games are another passion of mine, where I like to unwind.
